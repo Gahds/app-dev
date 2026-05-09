@@ -9,5 +9,5 @@
 </ul>
 <text>
   
->The series did a great job in introducing each characer and also did a magnificent job in telling the story of the overall environment making it feel real and alive. The story is also not affraid on making major decisions that will greatly impact the series for the great or good.
+>The series did a great job in introducing each characer and also did a magnificent job in telling the story of the overall environment making it feel real and alive. The story is also not affraid on making major decisions that will greatly impact the series for the great or good, and that's why it became one of my favorite series of all time.
 </text>
